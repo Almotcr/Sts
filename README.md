@@ -1,1 +1,1 @@
-# Sts
+# Study
